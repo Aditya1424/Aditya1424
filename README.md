@@ -50,5 +50,5 @@
 
 <!-- can't stop myself from editing🤷... -->
 
-⭐️ From **AdityaGupta** ((https://github.com/Aditya1424))
+⭐️ From **AdityaGupta** (@adi_003(((https://github.com/Aditya1424)))
 
