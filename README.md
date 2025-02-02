@@ -50,5 +50,5 @@
 
 <!-- can't stop myself from editing🤷... -->
 
-⭐️ From **AdityaGupta** ([@zoomgy]((https://github.com/Aditya1424)))
+⭐️ From **AdityaGupta** ((https://github.com/Aditya1424))
 
